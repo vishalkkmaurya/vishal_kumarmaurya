@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @vishalkkmaurya
+- 👋 Hi, I’m Vishal Kumar Maurya 
 - 👀 I’m interested in Ethical Hacking and Web Development 
-- 🌱 I’m currently learning Web Development 
+- 🌱 I’m currently learning Agriculture science 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
